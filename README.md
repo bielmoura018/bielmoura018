@@ -1,16 +1,19 @@
-## Hi there 👋
+_**boas vindos ao meu perfil**_ 
 
-<!--
-**bielmoura018/bielmoura018** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+_**- Sou Gabriel tenho 18 anos de idade**_
 
-Here are some ideas to get you started:
+_**- Gosto muito de tocar música** **(GUITARRA)**_
+🎸🎼
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+_**- Trabalho com lava jato a dois anos**_
+
+_**VocÊ pode entrar em contato comigo**_
+
+_**EMAIL**_ -
+ _**Bielmura30042006@gmail.com**_
+
+ _**WhatsApp**_ -
+ _**18 99639-1842**_
+
+ _**Instagram**_ -
+ _**Bielmoura@018**_
